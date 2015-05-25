@@ -1,4 +1,4 @@
 Catchup ideas
 =============
 
-Muy importante!
+Muy bonito!
